@@ -6,3 +6,4 @@ if you have potato internet or you're low on storage, download the the lite vers
 
 # comprehensive
 most of the assets i used, you can download it off of mediafire here
+https://www.mediafire.com/file/pbtr4ur6cg5jd0w/comprehensive.zip/file (1.42 GB)
